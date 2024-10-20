@@ -1,15 +1,3 @@
-dangelowalter@icloud.com
-melvingarrett00@icloud.com
-murphygoyette@icloud.com
-pietroryan1100@icloud.com
-hillardharris@icloud.com
-williambooe@icloud.com
-leslienovak0011@icloud.com
-williambooe@icloud.com
-leslienovak0011@icloud.com
-alexiskersh001@icloud.com
-louisserra1101@icloud.com
-naraokahiramoto1101@icloud.com
 wiktorroach@icloud.com
 xzavierchoi@icloud.com
 mohammadsaunders@icloud.com
